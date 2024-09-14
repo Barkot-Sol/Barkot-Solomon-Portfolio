@@ -14,4 +14,6 @@ I also like the [barbie](./Personal%20Project/Personal%20favorites/Barbie-style%
 
 I did random logo designs as well, just for me, except [kale-hiwot-logo](./Personal%20Project/Random%20Logos/Unused%20Logo%20Made%20for%20my%20School/). Talks broke down and it never got to be passed.
 
+Here a google drive [folder](https://drive.google.com/drive/folders/1vB949zoWO0D0F63koMUVjsUx6doX_Bny?usp=sharing) for convinece.
+
 
